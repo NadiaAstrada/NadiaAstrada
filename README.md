@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @NadiaAstrada
 - 👀 I’m interested in provide you with valuable opportunities to develop skills that could contribute to your professional growth
-- 🌱 I’m currently learning advanced tech sourcing
+- 🌱 I’m currently learning Advanced English
 - 📫 How to reach me nadia.astrada@mibucle.com
 
 <!---
